@@ -1,2 +1,0 @@
-# TTRR
-TTRRCHINA@outlook.com
